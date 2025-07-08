@@ -21,4 +21,4 @@
 总结来说，观看日本AV的最佳方式是选择一个合法、安全、高清且更新及时的平台。通过选择减少广告干扰、加强隐私保护和提供高质量播放体验的站点，你可以获得最佳的观影效果。同时，关注平台更新，确保不错过任何新片，也是满足影迷需求的有效方式。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/gg445219/74598 ）</span>
